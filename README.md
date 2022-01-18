@@ -1,2 +1,2 @@
-# NAME:
-# STUDENT ID:
+# NAME:THirachai Ngaoju Gun
+# STUDENT ID:640610628
